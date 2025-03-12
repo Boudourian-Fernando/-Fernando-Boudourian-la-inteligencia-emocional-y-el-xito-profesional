@@ -1,1 +1,2 @@
-# -Fernando-Boudourian-la-inteligencia-emocional-y-el-xito-profesional
+# -Fernando-Boudourian-la-inteligencia-emocional-y-el éxito-profesional
+Las emociones impactan en cada aspecto del trabajo. Desarrollar la autoconciencia permite tomar mejores decisiones, el autocontrol ayuda a gestionar la presión y la empatía fortalece las relaciones laborales. La inteligencia emocional es clave para el éxito, ya que mejora el liderazgo, la comunicación y la capacidad de resolución de problemas en cualquier equipo o empresa.
